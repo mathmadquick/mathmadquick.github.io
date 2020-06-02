@@ -1,1 +1,0 @@
-# mathmadquick.github.io
